@@ -1,0 +1,1 @@
+commitar apos cada sessao
